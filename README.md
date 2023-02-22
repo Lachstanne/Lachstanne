@@ -1,4 +1,6 @@
-### Hi there 👋
+⚡ Lachstanne ⚡
+
+**'Digital Hacksman' (Developer/Avarage Roblox User)'**
 
 <!--
 **Lachstanne/Lachstanne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
